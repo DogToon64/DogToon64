@@ -1,6 +1,6 @@
-Hi, I’m @DogToon64. I’m just some guy on the internet who has many interests.
+Hi, I’m @DogToon64. I’m just some guy who has many hobbies and interests.
 
-You can also find me on:
+You can find me on:
 YouTube: https://www.youtube.com/@DogToon64 (main channel), https://www.youtube.com/@DogToon64sSideChannel (side channel)
 
 Bluesky: https://bsky.app/profile/dogtoon64.bsky.social
