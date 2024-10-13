@@ -6,9 +6,9 @@ You can find me on:
 
 * Bluesky: https://bsky.app/profile/dogtoon64.bsky.social
 
-* Twitter: https://twitter.com/DogToon64
-
 * DeviantArt: https://www.deviantart.com/dogtoon64
+
+* Twitter: https://twitter.com/DogToon64
 
 <!---
 DogToon64/DogToon64 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
