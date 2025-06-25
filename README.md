@@ -1,4 +1,4 @@
-Hi, I’m @DogToon64. I’m just some guy who has many hobbies and interests.
+Hodwy, I’m @DogToon64. I’m just some guy who has many hobbies and interests. I also play games featuring a fatass plumber with a red hat or a spiky blue cartoon rat, among other games. I must have made some terrible life choices.
 
 You can find me on:
 
