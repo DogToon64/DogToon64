@@ -4,6 +4,7 @@ You can find me on:
 * YouTube: <a href = "https://www.youtube.com/@DogToon64" target = "_blank">Main channel</a>, <a href = "https://www.youtube.com/@DogToon64sSideChannel" target = "_blank">Side channel</a>
 * <a href = "https://bsky.app/profile/dogtoon64.bsky.social" target = "_blank">Bluesky</a>
 * <a href = "https://www.deviantart.com/dogtoon64" target = "_blank">DeviantArt</a>
+* <a href = "https://gamebanana.com/members/2982269" target = "_blank">GameBanana</a>
 * <a href = "https://www.deviantart.com/dogtoon64" target = "_blank">Twitter</a>
 
 <!---
