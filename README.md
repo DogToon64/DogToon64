@@ -5,6 +5,7 @@ You can also find me on:
 * <a href = "https://bsky.app/profile/dogtoon64.bsky.social" target = "_blank">Bluesky</a>
 * <a href = "https://www.deviantart.com/dogtoon64" target = "_blank">DeviantArt</a>
 * <a href = "https://sheezy.art/dogtoon64" target = "_blank">Sheezy.Art</a>
+* <a href = "https://www.tumblr.com/dogtoon64" target = "_blank">Tumblr</a>
 * <a href = "https://comic.studio/u/DogToon64" target = "_blank">Comic Studio</a>
 * <a href = "https://gamebanana.com/members/2982269" target = "_blank">GameBanana</a>
 * <a href = "https://tcrf.net/User:DogToon64" target = "_blank">The Cutting Room Floor</a>
