@@ -9,7 +9,7 @@ You can also find me on:
 * <a href = "https://comic.studio/u/DogToon64" target = "_blank">Comic Studio</a>
 * <a href = "https://gamebanana.com/members/2982269" target = "_blank">GameBanana</a>
 * <a href = "https://tcrf.net/User:DogToon64" target = "_blank">The Cutting Room Floor</a>
-* <a href = "https://www.deviantart.com/dogtoon64" target = "_blank">Twitter</a>
+* <a href = "https://twitter.com/DogToon64" target = "_blank">Twitter</a>
 
 <!---
 DogToon64/DogToon64 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
